@@ -43,3 +43,8 @@
 
 Удачи!
 
+Контакты автора:
+
+[VK](https://vk.com/lxsthokage)
+[Telegram](https://t.me/lasthxkage)
+
